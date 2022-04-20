@@ -1,0 +1,2 @@
+# shitscripts
+Gewoon wat bullshit
